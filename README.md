@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KalenHermalin
-- 👀 I’m interested in Pyhton
+- 👀 I’m interested in alot!
 - 🌱 I’m currently learning anything i want to
 - 💞️ I’m looking to collaborate on my new progect StreamersControl
 - 📫 How to reach me ...
